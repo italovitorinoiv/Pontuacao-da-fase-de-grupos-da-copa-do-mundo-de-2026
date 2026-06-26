@@ -1,0 +1,1 @@
+# Pontuacao-da-fase-de-grupos-da-copa-do-mundo-de-2026
